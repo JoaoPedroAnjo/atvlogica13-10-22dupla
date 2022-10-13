@@ -1,0 +1,1 @@
+# atvlogica13-10-22dupla
